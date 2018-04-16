@@ -1,4 +1,1 @@
-# Diplomaeshenet
-123
-456
-789
+# doplomaeshenet
