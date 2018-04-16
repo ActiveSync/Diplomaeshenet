@@ -1,4 +1,0 @@
-# doplomaeshenet
-фывфывфы
-dsadasd
-asdasd
